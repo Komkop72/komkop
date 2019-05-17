@@ -1,0 +1,2 @@
+# komkop
+Server Dark RP
